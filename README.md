@@ -2,11 +2,12 @@
 
 
 
-<p align="center"> $${\color{#9ecae1}"HE'S\space  BAD, \space BAD\space BAD\space BAD\space BAD"}$$
-<p align="center"> $${\color{#9ecae1}it\space /\space any}$$
-<p align="center"> $${\color{#9ecae1}kier\space /\space puff \space or \space cassius}$$
+<p align="center"> $${\color{#9ecae1}"a\space regect."}$$
+<p align="center"> $${\color{#9ecae1}he\space /\space they\space or\space any}$$
+<p align="center"> $${\color{#9ecae1}kier\space /\space puffle \space or \space cassius}$$
+<p align="center"> $${\color{#9ecae1}7teen\space .\space june/28}$$
 
-
+<p align="center"> im also an artist but i dont take comissions alot!
 
 <p align="center"> $${\color{#9ecae1}im\space the\space real\space badpuffer\space and\space angeredfish.}$$
 
